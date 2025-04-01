@@ -1,0 +1,2 @@
+# WALTER-SAMUEL-QR
+homewrok
